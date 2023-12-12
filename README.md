@@ -1,1 +1,0 @@
-# splitom.github.io
